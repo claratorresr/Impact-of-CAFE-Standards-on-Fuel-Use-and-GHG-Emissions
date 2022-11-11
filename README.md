@@ -1,1 +1,1 @@
-# Impact-of-CAFE-Standards-on-Fuel-Use-and-GHG-Emissions
+# Impact of CAFE Standards on Fuel Use and GHG Emissions
